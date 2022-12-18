@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Mars-Bel.github.io/rsschool-cv/
